@@ -1,1 +1,4 @@
-# This-present-end-of-the-week-s-gauge
+This present end of the week's gauge is straightforwardly beneath. This post will be refreshed on Friday morning with Thursday night review results followed by Friday gauges on Saturday morning, and a total end of the week recap on Sunday morning. <p><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-greyhound-2020-full-online-free-hd">Watch Greyhound Online</a></p>
+<p><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-sonic-the-hedgehog-2020-full-online-free-hd">Watch Sonic the hedgehog Online</a></p>
+<p><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-project-power-2020-full-online-free-hd">Watch Project power Online</a></p>
+<p><a href="https://canvas.instructure.com/courses/2459652/pages/123movies-watch-onward-2020-full-online-free-hd">Watch Onward Online</a></p>
